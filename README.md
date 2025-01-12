@@ -45,5 +45,3 @@ I started developing the course I mentioned above. In the process of which I beg
 <br /><br />The techniques and hacks i have developed in the course is built on top of traditional methods. The only difference is a shorter and faster way to master the language. 
 <br /><br />I have tweaked the hacks and techniques over and over again. My coursebook went through various revisions as the methodology got fine-tuned. It was a course that was helping Singaporeans speak, read and write Spanish in 8 weeks!*
 
-<br />[^1]: [The Light Bulb Moment](https://bridgesa.net/business-development.html)
-<br />[^2]: [Some helpful resources](https://bridgesa.net/learn-spanish.html)
