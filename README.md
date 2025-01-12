@@ -1,5 +1,5 @@
 # MY-SPANISH-LEARNING JOURNEY
-Back in 2002, i created a course that teaches techniques to *Learn to Read, Write and Speak Spanish Fast*. The techniques leverage on clever mind hacks. It's call [Good Spanish in 8 Weeks][#heading-GOOD SPANISH IN 8 WEEKS] and was designed specifically for the Singaporean.
+Back in 2002, i created a course that teaches techniques to *Learn to Read, Write and Speak Spanish Fast*. The techniques leverage on clever mind hacks. It's call [Good Spanish in 8 Weeks][#GOOD SPANISH IN 8 WEEKS] and was designed specifically for the Singaporean.
 
 ## GOOD SPANISH IN 8 WEEKS ##
 This was the course logo:
