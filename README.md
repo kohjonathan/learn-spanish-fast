@@ -26,7 +26,7 @@ We actually started using the language more confidently on a daily basis.
 I remember our teacher sending out on errands to practice our language.
 Our teahcer eben got us acquainted with a local church community so we learned from them.
 
-**THEN, WE LEARNED THE ACTUAL LANGUAGE ON THE STREETS**  
+**THEN, WE LEARNED THE ACTUAL LANGUAGE ON THE STREETS**
 <br />The moment came, weeks after the in-house training. We were sent two-by-two onto the streets to knock on doors and share the Good News to Chileans.
 While we equipped with a good foundation, it didn't take us to long to realise that there were lots of stuff beyond what we know.
 For instance, the locals didn't use properly constructed sentences. They abbreviated a lot of stuff. They spoke with gestures. They sentences werew usually short unless engaged in a debate.
