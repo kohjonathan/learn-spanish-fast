@@ -42,8 +42,8 @@ I started developing the course I mentioned above. In the process of which I beg
 
 **CLEVER MIND HACKS FOR LANGUAGE LEARNING**
 <br />For clarification, I'm not throwing traditional methods out of the window. Not at all. As mentioned, traditional methods work very well, just slower. Memorisation, written practice, oral practice, conversations, they work 100 years ago, they still work today! They work for those who're willing to put in the time. Just grab a Spanish language textbook from a nearby bookstore and start learning.
-<br />The techniques and hacks i have developed in the course is built on top of traditional methods. The only difference is a shorter and faster way to master the language. 
-<br />I have tweaked the hacks and techniques over and over again. My coursebook went through various revisions as the methodology got fine-tuned. It was a course that was helping Singaporeans speak, read and write Spanish in 8 weeks!*
+<br /><br />The techniques and hacks i have developed in the course is built on top of traditional methods. The only difference is a shorter and faster way to master the language. 
+<br /><br />I have tweaked the hacks and techniques over and over again. My coursebook went through various revisions as the methodology got fine-tuned. It was a course that was helping Singaporeans speak, read and write Spanish in 8 weeks!*
 
 <br />[^1]: [The Light Bulb Moment](https://bridgesa.net/business-development.html)
 <br />[^2]: [Some helpful resources](https://bridgesa.net/learn-spanish.html)
