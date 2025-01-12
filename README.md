@@ -1,5 +1,5 @@
 # MY-SPANISH-LEARNING JOURNEY
-Back in 2002, i created a course that teaches techniques to *Learn to Read, Write and Speak Spanish Fast*. The techniques leverage on clever mind hacks. It's call [Good Spanish in 8 Weeks][#GOOD SPANISH IN 8 WEEKS] and was designed specifically for the Singaporean.
+Back in 2002, i created a course that teaches techniques to *Learn to Read, Write and Speak Spanish Fast*. The techniques leverage on clever mind hacks. It's call [Good Spanish in 8 Weeks](#GOOD SPANISH IN 8 WEEKS) and was designed specifically for the Singaporean.
 
 ## GOOD SPANISH IN 8 WEEKS ##
 This was the course logo:
@@ -14,7 +14,7 @@ I learned Spanish back in 1994. It was for an overseas church-planting mission t
 The journey started with a Mexican sister in a small classroom setting. With a lot of patience, the teacher taught us our first lessons week after week.
 We did lots of verbal practices, sang Spanish worship songs, exchanged short greetings plus basic phrases. 
 
-**WE MEMORISED SPANISDH PHRASES AND PRACTICED CASUAL CONVERSATIONS WITH EACH OTHER**
+**WE MEMORISED SPANISH PHRASES AND PRACTICED CASUAL CONVERSATIONS WITH EACH OTHER**
 It seemed that language hacks didn't exist. Or back in those days, it wasn't a thing. I'm not sure.
 It was slower but the traditional method did work.
 Three months later, we were in Chile and the lessons continued daily with a missionary who had lived in Latin America for like 30 years already. The method was similar to that used by the Mexican teacher except that the focus was a bit different. We went beyond basic phrases.
