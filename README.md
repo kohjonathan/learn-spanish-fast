@@ -4,6 +4,8 @@ Back in 2002, i created a course that teaches techniques to *Learn to Read, Writ
 ## GOOD SPANISH IN 8 WEEKS ##
 This was the course logo:
 [![SPANISH LESSONS FOR SINGAPOREANS](https://bridgesa.net/img/8-weeks-good-spanish-small.png)]
+
+
 ![spanish-learning-mind-hacks](https://github.com/user-attachments/assets/2dd133c8-d674-4bff-ab3d-2f5a3ef1c028)
 
 This was the course itself:
