@@ -7,7 +7,7 @@ This was the course logo:
 ![spanish-learning-mind-hacks](https://github.com/user-attachments/assets/2dd133c8-d674-4bff-ab3d-2f5a3ef1c028)
 
 This was the course itself:
-[![SPANISH LESSONS FOR SINGAPOREANS]([link-url](https://bridgesa.net/spanish-class.html)]
+[![SPANISH LESSONS FOR SINGAPOREANS](https://bridgesa.net/spanish-class.html)]
 
 **I STARTED AS A SINGAPOREAN WHO ONLY SPOKE ENGLISH AND MANDARIN**
 I learned Spanish back in 1994. It was for an overseas church-planting mission to Chile back then.
