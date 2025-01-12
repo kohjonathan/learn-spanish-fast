@@ -23,18 +23,18 @@ Three months later, we were in Chile and the lessons continued daily with a miss
 <br />Yes, we did. I remember the sheets and sheets of printed lessons, the many tables that we had to fill in the conjugations, we read the Bible in Spanish and sang more in Spanish.
 They were quite dry but guess what, they worked like a charm.
 We actually started using the language more confidently on a daily basis.
-I remember our teacher sending out on errands to practice our language.
-Our teahcer eben got us acquainted with a local church community so we learned from them.
+I still remember how our teacher sent us out on marketing errands to practice our language at the stores.
+Our teacher even got us acquainted with a local church community so that we could learn from them.
 
 **THEN, WE LEARNED THE ACTUAL LANGUAGE ON THE STREETS**
 <br />The moment came, weeks after the in-house training. We were sent two-by-two onto the streets to knock on doors and share the Good News to Chileans.
 While we equipped with a good foundation, it didn't take us to long to realise that there were lots of stuff beyond what we know.
-For instance, the locals didn't use properly constructed sentences. They abbreviated a lot of stuff. They spoke with gestures. They sentences werew usually short unless engaged in a debate.
-Our language was taken to a whole new different level. It was built upon the foundations we had learned from the two teachers.
+For instance, the locals didn't use properly constructed sentences. They abbreviated a lot of stuff. They spoke with gestures. They sentences were usually short unless engaged in a debate.
+Our language was taken to a whole new different level but it was essentially built upon the foundations we had learned from the two teachers.
 
 **WE STARTED EXPRESSING OUR INTENTIONS AND THOUGHTS IN SPANISH MORE FLUENTLY**
 <br />After six months or so on the streets, we started conversing with confidence. We could express ourselves with lesser effort, explain biblical concepts, and essentially what we were doing in a place so far away from our home.
-People were actually beginning to understand us a lot better. We made lots of friends on the streets, got invited to have meals, to events, etc. We started to make some friends. The team of four Singaporeans stayed for one twelve months before the mission ended. I opted to stay beyond the agreed voluntary period because i heard GOD telling me to do so. I made even more friends and had more practice with the Spanish language. I spoke no English as hardly anyone spoke English where I was.
+People were actually beginning to understand us a lot better. We met lots of people on the streets, got invited to have meals, to events, etc. We started to make some friends. The team of four Singaporeans stayed for one twelve months before the mission ended. I opted to stay beyond the agreed voluntary period because i heard GOD telling me to do so. I made even more friends and had more practice with the Spanish language. I spoke no English as hardly anyone spoke English where I was.
 
 **I NEVER STOPPED SPEAKING SPANISH SINCE**
 <br />After my mission, language continued to be a part of me. And, with time, i decided I wanted to pass on my skills to others.
